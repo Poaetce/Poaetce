@@ -1,1 +1,1 @@
-# gay ass hell #
+# gay as hell #
